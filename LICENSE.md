@@ -1,4 +1,4 @@
-# 
+# secure Affinity Photo for PC scripts is the best Affinity Photo for PC scripts with simulation and collaboration-tools. Safe, reliable, and optimized for maximum performance.
 
 
 
